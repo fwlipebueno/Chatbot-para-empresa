@@ -15,9 +15,7 @@ Matheus Hirata Vanzela
 
 
 Orientadores: Profa. Dra.Tamara Angélica Baldo - tabaldo@utfpr.edu.br
-
 Prof. Me. Muriel de Souza Godoi - muriel@utfpr.edu.br
-
 Profa. Dra. Ana Cristina Fernandes Pereira Wolff - anafernandes@utfpr.edu.br
 
 Instituição: UTFPR
